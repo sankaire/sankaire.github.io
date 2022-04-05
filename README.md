@@ -1,0 +1,2 @@
+# sankaire.github.io
+domain
